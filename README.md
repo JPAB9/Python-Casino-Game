@@ -5,4 +5,4 @@ This game could encourage gambling activity, if you would not like so, please ex
 
 Report any bugs to me on Discord! , user is jpab.is.lebaneese!
 
-thanks for playing <3
+thanks for playing!
